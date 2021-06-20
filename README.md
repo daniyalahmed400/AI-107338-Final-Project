@@ -7,4 +7,4 @@ Student Name | Student ID
 ------------ | -------------
 **Anusha Iqbal** | **64011**
 **Hafiz Daniyal Shakeel** | **64299**
-**S M Uzair** | **64239**
+**Syed Muhammad Uzair** | **64239**
