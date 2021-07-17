@@ -10,3 +10,9 @@ ANUSHA IQBAL 64011
 ![Anusha SS1](https://user-images.githubusercontent.com/76884898/126046054-b91808ef-a554-4459-b0e2-6f3ebebd9cc0.PNG)
 
 ![Anusha SS2](https://user-images.githubusercontent.com/76884898/126046055-fab93d1a-a06f-4002-a538-26490a62d2e6.PNG)
+
+SYED MUHAMMAD UZAIR 64239
+
+![uzair ss1](https://user-images.githubusercontent.com/61597948/126046405-9e18bd7b-7439-4e8e-9ee2-fe6811d1d9a9.PNG)
+
+![uzair ss2](https://user-images.githubusercontent.com/61597948/126046406-cafbb049-7ae4-40bb-9c02-690b12aab763.PNG)
