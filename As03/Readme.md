@@ -5,6 +5,11 @@ HAFIZ DANIYAL SHAKEEL 64299
 
 ![Screenshot (17)](https://user-images.githubusercontent.com/60693890/126045825-a7a019ce-bcfd-4101-90d3-0fc12c805e50.png)
 
+![Screenshot (19)](https://user-images.githubusercontent.com/60693890/126064306-2305c2e4-1823-414c-8210-180c4a60eb3f.png)
+
+![Screenshot (20)](https://user-images.githubusercontent.com/60693890/126064309-bc9f4469-9339-4e55-bccf-7d1219d29818.png)
+
+
 ANUSHA IQBAL 64011
 
 ![Anusha SS1](https://user-images.githubusercontent.com/76884898/126046054-b91808ef-a554-4459-b0e2-6f3ebebd9cc0.PNG)
