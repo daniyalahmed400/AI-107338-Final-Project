@@ -26,3 +26,7 @@ SYED MUHAMMAD UZAIR 64239
 ![uzair ss1](https://user-images.githubusercontent.com/61597948/126046405-9e18bd7b-7439-4e8e-9ee2-fe6811d1d9a9.PNG)
 
 ![uzair ss2](https://user-images.githubusercontent.com/61597948/126046406-cafbb049-7ae4-40bb-9c02-690b12aab763.PNG)
+
+![SS2](https://user-images.githubusercontent.com/61597948/126064824-ca52f820-b652-46f3-884d-d08c8e1c2523.PNG)
+
+![SS1](https://user-images.githubusercontent.com/61597948/126064826-93520d71-38dd-47d8-9574-0cbac490f811.PNG)
