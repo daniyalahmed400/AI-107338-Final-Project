@@ -11,3 +11,6 @@ Name: Hafiz Daniyal Shakeel
 
 Name: Anusha Iqbal
 
+![ss1](https://user-images.githubusercontent.com/76884898/126204784-6c718a86-36cf-493b-983a-040fc52b94d5.PNG)
+
+![ss2](https://user-images.githubusercontent.com/76884898/126204791-f8a4cea8-7e54-4873-ae6a-4f2e4c34d002.PNG)
