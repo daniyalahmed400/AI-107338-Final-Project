@@ -1,12 +1,13 @@
 Name: Syed Muhammad Uzair
 
 
-![Uzair_As02](https://user-images.githubusercontent.com/61597948/125412735-0684a580-e374-11eb-9bff-c35c40776751.PNG)
 
 Name: Hafiz Daniyal Shakeel
 
-![Daniyal As02](https://user-images.githubusercontent.com/60693890/125513571-8e6781cb-e80e-4801-948d-52966ec988a3.png)
+![Screenshot (25)](https://user-images.githubusercontent.com/60693890/126195991-0eea64a0-5bbd-4a7a-97e7-465635f11779.png)
+
+![Screenshot (26)](https://user-images.githubusercontent.com/60693890/126196000-3e2d5698-c02c-4bcb-9340-1b025c2e6e32.png)
+
 
 Name: Anusha Iqbal
 
-![AnushaAssign02](https://user-images.githubusercontent.com/76884898/125516127-78b47bbd-b466-4930-8051-6c1b7aea971b.png)
