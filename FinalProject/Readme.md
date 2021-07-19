@@ -11,7 +11,7 @@ Student Name | Student ID
 
 PREDICTIONS USING SVM AND KNN AND Classifiers
 
-**OUR FINDINGS:
+**OUR FINDINGS:**
 
 ![Screenshot (22)](https://user-images.githubusercontent.com/60693890/126153194-a0f30d50-1bc2-4405-9d74-134a749e444b.png)
 
